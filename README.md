@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on creating exciting projects.
 - 📫 How to reach me 
 - Email: pranaypatil8055@gamil.com
-- LinkedIn: Pranay Patil (https://www.linkedin.com/in/pranay-patil-720852190)
+- LinkedIn: Pranay Patil (https://www.linkedin.com/in/iampranaypatil)
 
 Don't hesitate to drop me a message if you have any questions, ideas, or if you just want to say hi. 
 I'm open to new opportunities and collaborations, so let's connect and build something amazing together!
